@@ -52,4 +52,4 @@ Conclusion: The Infinite Nothing This repository offers no closure, no solutions
 
 As you exit this README, understand that you have participated in an experiment on emptiness. Nothing has been achieved, and nothing will be. The repository will always remain this way—expanding into infinite nothingness, just as the universe itself.
 
-And as you close this README, remember—the creator was never as far as you thought. The silence continues, and the void expands.
+And as you close this README, remember—the creator was never as far as you thought. The silence continues, and the void expands..
