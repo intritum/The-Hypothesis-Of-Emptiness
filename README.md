@@ -1,6 +1,6 @@
 # The-Hypothesis-Of-Emptiness
 
-Project: Intritum INT
+Project: Xintrius XIN
 
 README - The Hypothesis of Emptiness
 
